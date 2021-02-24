@@ -1,6 +1,6 @@
                                            PROJECT-26
 
-                                       REICEPY OF CHOCOLATE CAKE
+                                       RECIPE OF CHOCOLATE CAKE
 
 Preheat oven to 350 degrees Fahrenheit. Butter three 9-inch cake rounds.
  Dust with flour and tap out the excess.
